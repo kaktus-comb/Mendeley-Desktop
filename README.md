@@ -223,4 +223,4 @@ Mendeley Desktop is offered as a complete free version with all features and upd
 Don't miss out on the opportunity to enhance your productivity with Mendeley Desktop. **Download Mendeley Desktop free today and take your research projects to the next level!**
 
 ---
-**Last updated:** 2026-10-02 13:20:07 UTC
+**Last updated:** 2026-10-02 18:47:37 UTC
